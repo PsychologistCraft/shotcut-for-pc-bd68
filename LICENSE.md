@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows best Transition: auto-cut & noise-reduction offers the most advanced Shotcut for PC | Shotcut for Windows transition, with auto-cut and
 
 
 
